@@ -10,3 +10,5 @@
   *https://barisburak.blogspot.com
   
   *https://www.twitter.com/krygen2
+  
+  *https://www.youtube.com/channel/UCwAPIz4DoA5dk3DUlkMWZpw/videos
