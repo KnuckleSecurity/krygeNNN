@@ -4,12 +4,12 @@
 - 📫 How to reach me :
 --> 
 
-  *imbarisburak@protonmail.com
+  * imbarisburak@protonmail.com
   
-  *https://www.instagram.com/burak_baris_
+  * https://www.instagram.com/burak_baris_
   
-  *https://barisburak.blogspot.com
+  * https://barisburak.blogspot.com
   
-  *https://www.twitter.com/krygen2
+  * https://www.twitter.com/krygen2
   
-  *https://www.youtube.com/channel/UCwAPIz4DoA5dk3DUlkMWZpw/videos
+  * https://www.youtube.com/channel/UCwAPIz4DoA5dk3DUlkMWZpw/videos
