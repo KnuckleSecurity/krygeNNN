@@ -2,7 +2,7 @@
 - 👀 I’m interested in CyberSecurity and red team pentesting.
 - 🌱 I’m currently learning CEHv11
 - 📫 How to reach me :
-- 
+--> 
   *imbarisburak@protonmail.com
   
   *https://www.instagram.com/burak_baris_
