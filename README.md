@@ -8,7 +8,7 @@
   
   * https://www.instagram.com/burak_baris_
   
-  * https://barisburak.blogspot.com
+  * https://krygennn.github.io
   
   * https://www.twitter.com/krygen2
   
